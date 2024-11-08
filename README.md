@@ -1,4 +1,4 @@
-### Hi there 👋
+### Ora viva, seja benvindo ao meu perfil 👋
 
 <!--
 **AbraaoKiuma/AbraaoKiuma** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
